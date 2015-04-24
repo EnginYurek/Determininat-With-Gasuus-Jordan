@@ -1,1 +1,0 @@
-# Determininat-With-Gasuus-Jordan
